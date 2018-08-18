@@ -1,5 +1,7 @@
 # hello-world
-frist learn code GitHub
+
+
+----
 
 ---
 when you want change **world**, you must chane yourslef *first*.
