@@ -26,9 +26,8 @@ when you want change **world**, you must chane yourslef *first*.
 |←|中间|→|
 
 
-
-
-
+[小情歌](https://www.baidu.com/link?url=wz53uL78ZRil6GUyzNoXCK1sTfdnB-AWQI_9geGdjIWMDjDss9Uc5rNCmHK_I5ofw1qNYRtb39h5Cr1TSrFFT_&wd=&eqid=988c150b000066f9000000035b77cf46
+)
 
 ![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1534584052833&di=eb8857a87bfa681071c7b2e8d5953b00&imgtype=0&src=http%3A%2F%2Fpic.xiudodo.com%2Ffigure%2F00%2F00%2F33%2F16%2F73%2F1655bda6abbcd26.jpg)
 >  鲁迅说：我就随口一说
